@@ -5,4 +5,4 @@ I am the creator and developer of ConnectTheDotsPrintable.online, a unique tool 
 
 🌐 My Project: ConnectTheDotsPrintable.online
 
-💡 Need to chat about a partnership, feature request, or custom development? 📅 Schedule a Quick Meeting via Cal.com
+💡 Need to chat about a partnership, feature request, or custom development? 📅 [Schedule a Quick Meeting via Cal.com] (https://cal.com/jobs-franklin-klzv5b)
